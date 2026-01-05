@@ -1,0 +1,3 @@
+# DataAnalystPortfolioProject_PBI_SQL_Python_MarketingAnalytics
+
+https://youtube.com/playlist?list=PLMfXakCUhXsHxNShtz2ucsR69RCJqMnnd&si=TGQvt1-rkgKoFdrE
